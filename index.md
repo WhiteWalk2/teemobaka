@@ -46,6 +46,7 @@ Tomando notas
 - Odeio tudo isso, Mas amo mt tbm
 
 ![Imagem](https://i.gifer.com/2ZvF.gif)
+
 Brigas existem sempre vão ter
 O importante é saber lidar
 
@@ -57,3 +58,4 @@ espero que goste
 #Você é realmente importante para mim, é briguenta sim
 Mas é a minha briguenta ^^
 [Link3](https://www.youtube.com/watch?v=mncwybY71lM)
+![imagem](https://c.tenor.com/sjD6PCwAlFAAAAAd/mugen-chaves.gif)
