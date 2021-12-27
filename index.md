@@ -21,8 +21,7 @@ Brincadeira, eu amo oce tu num é má, num quero vilanizar vida, num é isso eu 
 [Link](https://www.youtube.com/watch?v=7M8m4LyFSkE)
 Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro de canhão to caindo por vc, meu coração tem essa dor não poder ter vc nos meus braços.
 
-![Imagem](https://i.pinimg.com/originals/16/a6/71/16a671b589655574ba77e0c2788a0a9e.gif}
-
+![Image](https://i.pinimg.com/originals/16/a6/71/16a671b589655574ba77e0c2788a0a9e.gif)
 ```Tomando notas
 [Link2](https://www.youtube.com/watch?v=HAZJAzCshN4)
 
