@@ -1,10 +1,21 @@
 ## Bom dia, boa tarde e boa noite
 
-You can use the [editor on GitHub](https://github.com/WhiteWalk2/teemobaka/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+Eu num sou muito bom no que to fazendo, mas vou dar o melhor
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+BAKABAKABAKABAKABAKA, UFaaa to bem melhor
 
-### Markdown
+## Poque eu gosto de você?
+Você esteve comigo 
+
+"No dia mais claro, na noite mais escura,
+
+nenhum mal escapará a minha visão!
+
+Que aqueles que adoram o poder do mal,
+
+temam o meu poder ... A LUZ DO LANTERNA VERDE!"
+
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.toyshow.com.br%2Festatua-lanterna-verde-classic-green-lantern-super-powers-artfx-statue-kotobukiya-cd&psig=AOvVaw1oReTdbxvSms61tm3IAdcG&ust=1640713496111000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNDx9ZzEhPUCFQAAAAAdAAAAABAD
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
