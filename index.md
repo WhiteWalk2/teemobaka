@@ -23,16 +23,19 @@ Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro
 
 
 ```Tomando notas
-
+[Link2](https://www.youtube.com/watch?v=HAZJAzCshN4)
 
 # Coisas que eu amo
-Seu sotaque de mineiro eu acho incrivel isso
+- Seu sotaque de mineiro eu acho incrivel isso
+- Mesmo quando tu ta longe de mim eu amo isso, pq a saudades me faz ter certeza que eu amo você
+- Nossas "Brigas" eu as vezes perdo a cabeça os sentidos falo mais que o necessario, pq eu gosto de você e isso mexe cmg, como nunca mexeu antes
+- Seu audio cantando Hakuna Matata
+- A distancia, pq mesmo a disntacia ainda gosto muito de vc
+- Gosto dessa sua dedicação ao estudo
+- De vc querer ser independente
+- De tantos trens que tu faz, tu podia ser o Thomas o Trem ![Imagem](https://ogimg.infoglobo.com.br/in/3019654-a9a-b0d/FT1086A/Thomas-e-o-trem-numero-um-da-Ilha-de-Sodor.jpg)
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
 **Bold** and _Italic_ and `Code` text
 
