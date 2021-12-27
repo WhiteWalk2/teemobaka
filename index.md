@@ -7,13 +7,13 @@ BAKABAKABAKABAKABAKA, UFaaa to bem melhor
 ## Poque eu gosto de você?
 Você esteve comigo 
 
-_"No dia mais claro, na noite mais escura,
+_"No dia mais claro, na noite mais escura,_
 
-_nenhum mal escapará a minha visão!
+_nenhum mal escapará a minha visão!_
 
-_Que aqueles que adoram o poder do mal,
+_Que aqueles que adoram o poder do mal,_
 
-_temam o meu poder ... A LUZ DO LANTERNA VERDE!"
+_temam o meu poder ... A LUZ DO LANTERNA VERDE!"_
 
 ![Imagem](https://terraverso.com.br/wp-content/uploads/2017/09/laira.gif)
 
@@ -53,3 +53,5 @@ Gosto muito de você bakaa
 to fazendo esse trem pra ti
 espero que goste
 
+#Você é realmente importante para mim, é briguenta sim
+Mas é a minha briguenta ^^
