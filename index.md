@@ -9,11 +9,11 @@ Você esteve comigo
 
 _"No dia mais claro, na noite mais escura,
 
-nenhum mal escapará a minha visão!
+_nenhum mal escapará a minha visão!
 
-Que aqueles que adoram o poder do mal,
+_Que aqueles que adoram o poder do mal,
 
-temam o meu poder ... A LUZ DO LANTERNA VERDE!"_
+_temam o meu poder ... A LUZ DO LANTERNA VERDE!"
 
 ![Imagem](https://terraverso.com.br/wp-content/uploads/2017/09/laira.gif)
 
@@ -37,17 +37,19 @@ Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro
 
 
 
-**Bold** and _Italic_ and `Code` text
+### Coisas que eu odeio
+- Odeio sentir sua falta
+- odeio quando te faço ficar triste
+- Odeio querer bj vc e não poder
+- Odeio te ver dodoi e não poder fazer nada
+- Odeio tudo isso, Mas amo mt tbm
 
-[Link](url) and ![Image](src)
-```
+![Imagem](https://i.gifer.com/2ZvF.gif)
+Brigas existem sempre vão ter
+O importante é saber lidar
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
+Eu num quero te fazer ficar triste ou mal
+Gosto muito de você bakaa
+to fazendo esse trem pra ti
+espero que goste
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/WhiteWalk2/teemobaka/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
