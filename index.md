@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Bom dia, boa tarde e boa noite
 
 You can use the [editor on GitHub](https://github.com/WhiteWalk2/teemobaka/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
