@@ -15,7 +15,7 @@ Que aqueles que adoram o poder do mal,
 
 temam o meu poder ... A LUZ DO LANTERNA VERDE!"
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.toyshow.com.br%2Festatua-lanterna-verde-classic-green-lantern-super-powers-artfx-statue-kotobukiya-cd&psig=AOvVaw1oReTdbxvSms61tm3IAdcG&ust=1640713496111000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNDx9ZzEhPUCFQAAAAAdAAAAABAD
+[Imagem](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.toyshow.com.br%2Festatua-lanterna-verde-classic-green-lantern-super-powers-artfx-statue-kotobukiya-cd&psig=AOvVaw1oReTdbxvSms61tm3IAdcG&ust=1640713496111000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCNDx9ZzEhPUCFQAAAAAdAAAAABAD)
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
