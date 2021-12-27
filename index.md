@@ -29,7 +29,7 @@ Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro
 - Seu sotaque de mineiro eu acho incrivel isso
 - Mesmo quando tu ta longe de mim eu amo isso, pq a saudades me faz ter certeza que eu amo você
 - Nossas "Brigas" eu as vezes perdo a cabeça os sentidos falo mais que o necessario, pq eu gosto de você e isso mexe cmg, como nunca mexeu antes
-- Seu audio cantando Hakuna Matata
+- Seu audio cantando Hakuna Matata ![Imagem](https://media1.giphy.com/media/12CmDbPafGzs3K/giphy.gif?cid=790b76119a443fec15688182381f5b6e4a4e66883f8b4e6c&rid=giphy.gif&ct=g)
 - A distancia, pq mesmo a disntacia ainda gosto muito de vc
 - Gosto dessa sua dedicação ao estudo
 - De vc querer ser independente
