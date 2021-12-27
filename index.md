@@ -15,7 +15,7 @@ Que aqueles que adoram o poder do mal,
 
 temam o meu poder ... A LUZ DO LANTERNA VERDE!"
 
-![Imagem](https://static3.tcdn.com.br/img/img_prod/460977/estatua_lanterna_verde_classic_green_lantern_super_powers_artfx_statue_kotobukiya_cd_23761_1_20201211172236.jpg)
+![Imagem](https://quadrinheiros.files.wordpress.com/2020/06/lanterna-verde-atravc3a9s-das-eras-capa.jpeg)
 
 Brincadeira, eu amo oce tu num é má, num quero vilanizar vida, num é isso eu prefiro fazer falar a verdade do q incomoda ou faz bem, dialogo é o caminho. eu acho pelo menos
 [Link](https://www.youtube.com/watch?v=7M8m4LyFSkE)
