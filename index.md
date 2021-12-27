@@ -4,6 +4,12 @@ Eu num sou muito bom no que to fazendo, mas vou dar o melhor
 
 BAKABAKABAKABAKABAKA, UFaaa to bem melhor
 
+![Imagem](https://media1.giphy.com/media/B4jfJqiIxvU08/giphy.gif?cid=790b7611db44e2689d2c2a22219f15b8bcbe382e3c1ab5b1&rid=giphy.gif&ct=g)
+
+_"— Não é quem eu sou por dentro e sim, o que eu faço é que me define."_
+
+_"— Nós caímos para aprendermos a nos levantar!"_
+
 ## Poque eu gosto de você?
 Você esteve comigo 
 
