@@ -15,7 +15,7 @@ Que aqueles que adoram o poder do mal,
 
 temam o meu poder ... A LUZ DO LANTERNA VERDE!"
 
-![Imagem](https://quadrinheiros.files.wordpress.com/2020/06/lanterna-verde-atravc3a9s-das-eras-capa.jpeg)
+![Imagem](https://terraverso.com.br/wp-content/uploads/2017/09/laira.gif)
 
 Brincadeira, eu amo oce tu num é má, num quero vilanizar vida, num é isso eu prefiro fazer falar a verdade do q incomoda ou faz bem, dialogo é o caminho. eu acho pelo menos
 [Link](https://www.youtube.com/watch?v=7M8m4LyFSkE)
@@ -33,7 +33,7 @@ Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro
 - A distancia, pq mesmo a disntacia ainda gosto muito de vc
 - Gosto dessa sua dedicação ao estudo
 - De vc querer ser independente
-- De tantos trens que tu faz, tu podia ser o Thomas o Trem ![Imagem](https://ogimg.infoglobo.com.br/in/3019654-a9a-b0d/FT1086A/Thomas-e-o-trem-numero-um-da-Ilha-de-Sodor.jpg)
+- De tantos trens que tu faz, tu podia ser o Thomas o Trem ![Imagem](https://media2.giphy.com/media/TlK63EWh6J1puKmzYmQ/giphy.gif?cid=790b7611152c85eca43305f07ab08e7efe1d6b21157224a3&rid=giphy.gif&ct=g)
 
 
 
