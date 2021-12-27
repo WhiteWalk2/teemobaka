@@ -23,7 +23,7 @@ Brincadeira, eu amo oce tu num é má, num quero vilanizar vida, num é isso eu 
 Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro de canhão to caindo por vc, meu coração tem essa dor não poder ter vc nos meus braços.
 
 ![Image](https://i.pinimg.com/originals/16/a6/71/16a671b589655574ba77e0c2788a0a9e.gif)
-```Tomando notas
+Tomando notas
 [Link2](https://www.youtube.com/watch?v=HAZJAzCshN4)
 
 # Coisas que eu amo
