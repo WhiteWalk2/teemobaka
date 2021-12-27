@@ -15,10 +15,10 @@ Que aqueles que adoram o poder do mal,
 
 temam o meu poder ... A LUZ DO LANTERNA VERDE!"
 
-[Imagem](https://static3.tcdn.com.br/img/img_prod/460977/estatua_lanterna_verde_classic_green_lantern_super_powers_artfx_statue_kotobukiya_cd_23761_1_20201211172236.jpg)
+![Imagem](https://static3.tcdn.com.br/img/img_prod/460977/estatua_lanterna_verde_classic_green_lantern_super_powers_artfx_statue_kotobukiya_cd_23761_1_20201211172236.jpg)
 
 Brincadeira, eu amo oce tu num é má, num quero vilanizar vida, num é isso eu prefiro fazer falar a verdade do q incomoda ou faz bem, dialogo é o caminho. eu acho pelo menos
-[Link](https://www.youtube.com/watch?v=7M8m4LyFSkE)
+![Link](https://www.youtube.com/watch?v=7M8m4LyFSkE)
 Queria ser uma andorinha, poder voar até meu amor, você me acertou com um tiro de canhão to caindo por vc, meu coração tem essa dor não poder ter vc nos meus braços.
 
 
